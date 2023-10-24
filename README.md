@@ -1,0 +1,1 @@
+# Sejarah-perkembangan-komputer-dari-masa-ke-masa
